@@ -1,5 +1,5 @@
-Working on Mathematical model for soccer rn
+Collecting data for ACFC website
 
-Created the basic model on paper, trying to make it into a website.
+ctmd太nm多了
 
 Reach me at xuanzilu115@gmail.com
