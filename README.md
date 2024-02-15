@@ -1,5 +1,7 @@
-Collecting data for ACFC website
+## 警告！
 
-all 4 fun
+## 1. 犯法但是别被抓，常挂vpn+虚拟机
 
+## 2. 远离直女
 
+## 3. 操，一个都没做到
